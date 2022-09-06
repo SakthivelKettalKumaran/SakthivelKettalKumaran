@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @SakthivelKettalKumaran
-- 👀 I’m interested in ...
 
 - 📫 How to reach me on https://www.linkedin.com/in/sakthivel-k-k-49360ab7/
 
